@@ -6,6 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+join auch mein discord server: https://discord.gg/AH67q4Mc2G
 <!---
 h4ppyfox/h4ppyfox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
